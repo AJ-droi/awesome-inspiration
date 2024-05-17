@@ -169,6 +169,8 @@
   - If you're afraid to fail, then you're probably going to fail. <br> ![](https://addicted2success.com/wp-content/uploads/2016/01/Kobe-Bryant-2.jpg)
 - Alan Watts
   - Waking up to who you are requires letting go of who you imagine yourself to be. <br> ![](https://www.azquotes.com/picture-quotes/quote-waking-up-to-who-you-are-requires-letting-go-of-who-you-imagine-yourself-to-be-alan-watts-59-21-09.jpg)
+- James Clear
+  - Mastery Requires Patience.![quote](https://github.com/AJ-droi/awesome-inspiration/assets/64270672/badb0c7d-b25d-49c9-a8be-520acc982aa6)
 
 ## Songs
 
